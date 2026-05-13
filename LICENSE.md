@@ -1,4 +1,4 @@
-# 
+# Obsidian for Windows new Tool: database-creation & web-clipper offers the most advanced Obsidian for Windows tool, with database-creation and web-clipper. Ideal for Windows
 
 
 
